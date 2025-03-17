@@ -1,5 +1,8 @@
-## Hi there 👋
+## Welcome to yunalien88🍀
 
+제 이름은 황유나입니다.
+청심국제중학교 17기
+대구과학영재학교 38기
 <!--
 **yunalien88/yunalien88** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
